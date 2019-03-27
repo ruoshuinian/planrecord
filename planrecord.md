@@ -16,4 +16,4 @@ d) If you have violated relevant Chinese laws, regulations or this application s
 e) If you are a qualified IP Complainant and have filed a complaint, it should be disclosed to the Respondent at the request of the Complainant so that both parties can handle possible rights disputes;
 f) Other disclosures that this application considers appropriate in accordance with laws, regulations or website policies.
 4. Information security
-a) We will not submit or upload your information, so your information is absolutely safe####https://www.baidu.com
+a) We will not submit or upload your information, so your information is absolutely safe
